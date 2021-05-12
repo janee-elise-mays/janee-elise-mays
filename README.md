@@ -7,4 +7,4 @@
 - 💬 Ask me about my two dogs __Pippi & Pooka__:dog:
 - 📫 How to reach me: janee.elise@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love to cook/bake. I once competed in a televised bakeoff :cake:
+- ⚡ Fun fact: I love to cook/bake. I once competed in a televised bake off :cake:
